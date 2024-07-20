@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Jocalindo
+- 👀 I’m interested in games, animes, coding and food.
+- 🌱 I’m currently learning coding.
+- ⚡ Fun fact: I was the best student from my school at ninth grade.
